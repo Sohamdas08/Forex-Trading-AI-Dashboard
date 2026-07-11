@@ -171,6 +171,8 @@ Business Insights
 
 GitHub:
 https://github.com/Sohamdas08
+LinkedIn:
+https://www.linkedin.com/in/soham-das-884a1a315/?skipRedirect=true
 
 ---
 
